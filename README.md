@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ACNACNACNA (semi-anonymous college student)
+- 👋 Hi, I’m Anthony (semi-anonymous college student)
 For recreational purposes, I am @ACN#4614.
 If you want to hire me for any reasonable reason, contact me here. This is just a personal account though.
 
